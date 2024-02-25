@@ -1,1 +1,0 @@
-# sametalkis.githu.io
